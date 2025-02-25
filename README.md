@@ -14,4 +14,4 @@ GithubPages: link////
 
 Ананасового дня тем, кто это прочитал
 
-LOGO
+LOGOhttps://yt3.googleusercontent.com/ytc/AIdro_lH3EJouYSN6jJqszZ8iPB-oZQdad2vH-UXv3tQ-R4bkA=s900-c-k-c0x00ffffff-no-rj
